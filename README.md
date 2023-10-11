@@ -1,0 +1,2 @@
+# rockstar
+activation fivem
